@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **React, Java, Javascript etc**
 
-- 📫 How to reach me **thakur.vishal1775@gmail.com**
+- 📫 How to reach me **vthakur2290@gmail.com**
 
 - ⚡ Fun fact **I am confident that my enthusiasm and willingness to learn will allow me to become a valuable asset to any organization.**
 
